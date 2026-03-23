@@ -1,4 +1,4 @@
-# DUSTCELL – ORIGINAL
+# DUSTCELL – 蜜蜂
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
